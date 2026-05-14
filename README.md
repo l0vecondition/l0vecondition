@@ -18,7 +18,7 @@
 I’m 19 years old and I go by he/him pronouns. .  Feel free to interact as long as you don't got weird intentions.<br><br>
 
 <p align="center">
-I’m someone who enjoys staying silent most of the time so please do not take it as a sign of me not liking you etc, im just a really akward when it comes to communication till i get comfortable(im working on it so be patient).<br>
+I’m someone who enjoys staying silent most of the time so please do not take it as a sign of me not liking you etc, im just a really akward person when it comes to communication till i get comfortable(im working on it so be patient).<br>
 <p align="center">
 Right now I’m exploring new technologies and improving my development skills step by step.<br><br>
 
